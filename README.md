@@ -2,5 +2,5 @@
 they called me slava  
 python party lover 🤍  
 wanna turn into an abstraction  
-![skull1](https://user-images.githubusercontent.com/73784126/120067882-930a2b80-c086-11eb-8124-e081043e270f.gif)
+![spudik2](https://user-images.githubusercontent.com/73784126/120068003-2c394200-c087-11eb-9e20-e8eacf0f6ce3.gif)
 >you know, we can be friends ^^
