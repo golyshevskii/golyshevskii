@@ -5,3 +5,4 @@ python party lover 🤍
 wanna turn into an abstraction    
 you know, we can be friends ^^  
 ![flower2](https://user-images.githubusercontent.com/73784126/120068128-cbf6d000-c087-11eb-8360-ed7734efe617.gif)
+![flower2](https://user-images.githubusercontent.com/73784126/120068128-cbf6d000-c087-11eb-8360-ed7734efe617.gif)
