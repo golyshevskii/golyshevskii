@@ -1,5 +1,5 @@
 ## \>>> hi()
-python party lover 🌈
+python party lover
 ***
 ```
 while True:
